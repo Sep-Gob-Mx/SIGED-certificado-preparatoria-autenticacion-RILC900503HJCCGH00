@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RILC900503HJCCGH00
+RILC900503HJCCGH00
